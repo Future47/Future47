@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Future47
+- 👀 I’m interested in programming/coding
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me via emifelixity3@gmail.com
